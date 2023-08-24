@@ -1,1 +1,1 @@
-# exercise-exquisite-corpse# Mamie a mangé tous les cookies
+# Mamie a mangé tous les cookies
